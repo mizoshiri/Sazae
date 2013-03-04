@@ -1,4 +1,0 @@
-Sazae
-=====
-
-Sazae HP
